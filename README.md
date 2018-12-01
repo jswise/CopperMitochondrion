@@ -1,4 +1,4 @@
-# The Copper Mitochondrion (a novel)
+# The Copper Mitochondrion
 
 A graduate student discovers that some of his ancestors didn't come to North America in the usual ways. As he learns about his newfound clan, his thesis project threatens them with cultural extinction. To save his people, he must manage his sketchy thesis advisor, his inbred relatives and their scary dogs, and his own scientific credibility.
 
